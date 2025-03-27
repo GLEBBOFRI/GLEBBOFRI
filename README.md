@@ -1,4 +1,7 @@
-## HIII ERRBODY ![hiii-1x](https://github.com/user-attachments/assets/01432060-8c7f-4170-8b0d-86386a602819)
+![yo-4x](https://github.com/user-attachments/assets/9d0b27d9-e5d8-4e17-8ac5-f47d185fbc61)
+
+
+ ## HIII ERRBODY ![hiii-1x](https://github.com/user-attachments/assets/01432060-8c7f-4170-8b0d-86386a602819)
 
 ![catJAM-2x](https://github.com/user-attachments/assets/aca943ca-91d7-47c7-9c50-1431c53e2baa) Ordinary ITMO PIiKT freshman
 
